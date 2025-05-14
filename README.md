@@ -11,11 +11,11 @@
 
 - 🌱 I’m currently learning **DSA, Full- Stack Development**
 
-- 👯 I’m looking to collaborate on **Major Projects including Web Development and AI/ML**
+- 👯 I’m looking to collaborate on **Major Projects including Web Development and AI/ML.**
 
 - 📫 How to reach me **lakshitapagaria@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1uSM31TxdIEPB8_1czsNN9D2O9knFuN2L/view?usp=drive_link](https://drive.google.com/file/d/1uSM31TxdIEPB8_1czsNN9D2O9knFuN2L/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/17xNiYnJlyLo8Vu2tv8ye1S4FlJ6g9q1G/view?usp=drive_link](https://drive.google.com/file/d/17xNiYnJlyLo8Vu2tv8ye1S4FlJ6g9q1G/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
