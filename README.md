@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **lakshitapagaria@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17xNiYnJlyLo8Vu2tv8ye1S4FlJ6g9q1G/view?usp=drive_link](https://drive.google.com/file/d/17xNiYnJlyLo8Vu2tv8ye1S4FlJ6g9q1G/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_szgjIoqpu0upP68NU4_SllJSme1xdxn/view?usp=sharing](https://drive.google.com/file/d/1_szgjIoqpu0upP68NU4_SllJSme1xdxn/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
